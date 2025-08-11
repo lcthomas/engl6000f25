@@ -21,9 +21,10 @@ I reserve the right to change the course calendar as needed; advance notice will
 - BIG QUESTIONS in literary studies
     - Please bring to class one "big question" you have about the discipline(s)/your subfield(s), the profession more generally, and/or academia/higher ed in the United States
 
-## Week 4: Conference Presentations
+## Week 4: Current Graduate Student Panel and Conference Presentations
 ### Monday, September 15
 - Current graduate student panel: Teddy Leane, Allison Zhou,
+- Visit from EGSO
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
 - Please send Lindsay your ranked list of journals for your journal review presentation by class
 
@@ -41,8 +42,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, October 6
 - Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
   - Visit from Chijioke Onah: Applying to external fellowships as a graduate student
-  - Visit from EGSO
-- Session open to other graduate students 
+- Session open to other graduate students
 
 ## Week 8: NO CLASS
 ### Monday, October 13: FALL BREAK/INDIGENOUS PEOPLES' DAY
