@@ -23,9 +23,9 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 4: Current Graduate Student Panel and Conference Presentations
 ### Monday, September 15
-- Current graduate student panel: Teddy Leane, Allison Zhou, and Taylor Pryor
-- Visit from EGSO
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
+- Visit from EGSO
+- Current graduate student panel: Teddy Leane, Allison Zhou, and Taylor Pryor
 - Please send Lindsay your ranked list of journals for your journal review presentation by class
 
 ## Week 5: Olin Library: Meet in Olin 108
