@@ -13,7 +13,7 @@ While I expect you to attend every class session (barring illness or emergency),
 This course is graded on a "Satisfactory/Unsatisfactory" scale. To receive a "Satisfactory" grade, you will:
 - Attend and participate in all class sessions but one, barring illness or emergency;
 - Complete your journal review presentation;
-- Meet with me at least once by the end of week 11 of the semester (I will set aside extra time during weeks 10 and 11 for this purpose, but I am happy to meet with you at any time before this, too).
+- Meet with me at least once by the end of week 11 of the semester (I will set aside extra time during weeks 10 and 11 for this purpose, but I am happy to meet with you at any time before or after this, too).
 
 ## Communication
 Please communicate with me if things come up about your experience of the course and/or your first semester, especially if you find yourself overwhelmed. I see it as part of my job as Director of Graduate Studies to help you adjust to and navigate graduate school and to the program, insofar as I am able. I am happy to meet with you in office hours or in a meeting outside of office hours.
