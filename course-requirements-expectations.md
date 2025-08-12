@@ -37,3 +37,4 @@ Some resources that might be useful include:
 
 - Office of Student Disability Services, <https://sds.cornell.edu/>
 - Cornell Health CAPS (Counseling & Psychological Services), <https://health.cornell.edu/services/counseling-psychiatry>
+- Cornell Office of Graduate Student Life, <https://gradschool.cornell.edu/student-experience/office-of-graduate-student-life/>
