@@ -59,7 +59,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 11: NO CLASS
 ### Monday, November 3: INDIVIDUAL MEETINGS
-- Lindsay will have office hours during class
+- Lindsay will hold individual meetings during class time (sign up for a meeting time using the Calendly link Lindsay will send via email)
 
 ## Week 12: Teaching
 ### Monday, November 10: Meet in GSH 258 (Dept Lounge)
