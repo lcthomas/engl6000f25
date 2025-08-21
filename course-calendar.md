@@ -10,22 +10,22 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 1: Introductions
 ### Monday, August 25
-- Welcome, practicalities, program review and structure
+- Welcome/practicalities, course goals, procedural guide, fall course selections
 
 ## Week 2: NO CLASS
 ### Monday, September 2: LABOR DAY
 
 ## Week 3: The First Year of PhD Study
 ### Monday, September 8
-- Managing coursework, finding mentors, preparing for second-year review and exams
+- Managing coursework, committee members and mentors, preparing for the second-year review and beyond
 - BIG QUESTIONS in literary studies
     - Please bring to class one "big question" you have about the discipline(s)/your subfield(s), the profession more generally, and/or academia/higher ed in the United States
 
-## Week 4: Current Graduate Student Panel and Conference Presentations
+## Week 4: Conference Presentations and Current Graduate Student Panel
 ### Monday, September 15
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
 - Visit from EGSO
-- Current graduate student panel: Teddy Leane, Allison Zhou, and Margaux Delaney
+- Current graduate student panel: Teddy Leane, Allison Chu, and Margaux Delaney
 - Please send Lindsay your ranked list of journals for your journal review presentation by class
 
 ## Week 5: Olin Library: Meet in Olin 108
