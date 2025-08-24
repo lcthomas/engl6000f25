@@ -19,7 +19,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, September 8
 - Managing coursework, committee members and mentors, preparing for the second-year review and beyond
 - BIG QUESTIONS in literary studies
-    - Please bring to class one "big question" you have about the discipline(s)/your subfield(s), the profession more generally, and/or academia/higher ed in the United States
+    - Please bring to class one "big (or small) question" you have about the discipline(s)/your subfield(s), the profession more generally, and/or academia/higher ed in the United States
 
 ## Week 4: Conference Presentations and Current Graduate Student Panel
 ### Monday, September 15
