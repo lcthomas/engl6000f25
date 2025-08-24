@@ -40,8 +40,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 7: Fellowships and Grants
 ### Monday, October 6
+- Visit from Chijioke Onah: Applying to external fellowships as a graduate student
 - Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
-  - Visit from Chijioke Onah: Applying to external fellowships as a graduate student
 - Session open to other graduate students
 
 ## Week 8: NO CLASS
