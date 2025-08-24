@@ -36,7 +36,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 6: Article Publishing
 ### Monday, September 29
 - Turning a seminar paper into an article, researching and submitting to a journal, the peer review process, managing reviewer feedback, timelines, publishing chapters from your dissertation
-- Journal review presentations
+- **Journal review presentations**
 
 ## Week 7: Fellowships and Grants
 ### Monday, October 6
