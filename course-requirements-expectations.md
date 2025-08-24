@@ -23,10 +23,10 @@ We will make use of multiple online systems and programs in this course: a cours
 
 - Course site: We will use this course site to manage course information and our schedule. You will find an online version of our course calendar here (including the most up-to-date version of reading assignments and due dates), as well as an online version of our course syllabus. You will also find all course assignment sheets here, as well as links to online materials.
 
-- Canvas: Course materials, such as a pdf version of the syllabus, are available via our [Canvas site](https://canvas.cornell.edu/courses/62495){:target="_blank"}. You will also be able to access our individual meeting Zoom link (see below) via Canvas.
+- Canvas: Course materials, such as a pdf version of the syllabus, are available via our [Canvas site](https://canvas.cornell.edu/courses/77364){:target="_blank"}. You will also be able to access our individual meeting Zoom link (see below) via Canvas.
 
 - Zoom: I will hold office hours in person, but for meetings outside of office hours, I can meet with you either in person or on Zoom. If we meet on Zoom, we will utilize a standing Zoom link for our meeting. You can find this link via our Canvas site. To meet with me on Zoom:
-1.	From our [Canvas site](https://canvas.cornell.edu/courses/62495){:target="_blank"}, click on “Zoom” in the left menu.
+1.	From our [Canvas site](https://canvas.cornell.edu/courses/77364){:target="_blank"}, click on “Zoom” in the left menu.
 2.	This will take you to a page where you will see our standing class Zoom link (which is titled “ENGL 6000 Colloquium for Entering Students (2025FA)”). Click “Join” to join the meeting.
 3.	These meetings will not be recorded. I have enabled a waiting room for these meetings, which you will enter first when signing on. I will then let you into the Zoom room. If I do not let you in right away, this means I am meeting with another student.
 
