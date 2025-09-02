@@ -15,7 +15,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 2: NO CLASS
 ### Monday, September 2: LABOR DAY
 
-## Week 3: The First Year of PhD Study
+## Week 3: The First Year of PhD Study (and beyond)
 ### Monday, September 8
 - Managing coursework, committee members and mentors, preparing for the second-year review and beyond
 - BIG QUESTIONS in literary studies
