@@ -12,7 +12,7 @@ nav_order: 1
 
 ## Course Info
 M 2:00-4:30 pm<br/>
-Rockefeller Hall 187
+Goldwin Smith 234
 
 ## Office Hours
 T 1-3 pm, and by appointment <br/>
