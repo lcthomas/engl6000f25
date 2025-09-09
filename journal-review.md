@@ -38,3 +38,6 @@ Our goal is for everyone in class to present on a different journal, so dependin
 Preparing for your presentation will mainly involve reading through your selected journal's website and surveying/skimming some recent issues. You may also wish to bring in a page of notes to use to help you present.  Please note that some journals may not provide information about all of the items or questions listed in numbers 1-4 at the top of this page; cover what you can and what you think is most important to discuss in the time you have.
 
 Your presentation should be around 5-7 minutes long. I will set a timer that will go off after 7 minutes; after that point, you will have 30 more seconds to wrap up your presentation. It is important that we stick to time so that everyone in class has a chance to present. You do not need to prepare slides or other visual aids for your presentation, though you may choose to use the projector to display the journal's webpage and/or a sample article if you wish.
+
+## Selected Journals
+- Aaron: *Aphra Behn Online*
