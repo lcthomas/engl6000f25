@@ -43,3 +43,5 @@ Your presentation should be around 5-7 minutes long. I will set a timer that wil
 - Aaron: *Aphra Behn Online*
 - Andrea: *Gothic Studies*
 - Yinka: *Research in African Literatures*
+- Niloofar: *Modernism/modernity*
+- Brett: *GLQ: A Journal of Lesbian and Gay Studies*
