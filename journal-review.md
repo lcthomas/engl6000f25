@@ -42,3 +42,4 @@ Your presentation should be around 5-7 minutes long. I will set a timer that wil
 ## Selected Journals
 - Aaron: *Aphra Behn Online*
 - Andrea: *Gothic Studies*
+- Yinka: *Research in African Literatures*
